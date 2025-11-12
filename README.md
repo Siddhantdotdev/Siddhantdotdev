@@ -24,7 +24,7 @@ I’m always open to collaborating on cool ideas, learning something new, or con
 If you’re building something interesting — **let’s connect!**
 
 📫 **Email:** siddpvt123@gmail.com  
-💬 **Twitter/X:** [@siddcodes1](https://x.com/)  
+💬 **Twitter/X:** [@Siddcodes1](https://x.com/)  
 🌐 **Portfolio:** Coming soon...  
 
 ---
